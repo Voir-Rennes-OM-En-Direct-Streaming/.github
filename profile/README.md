@@ -1,5 +1,10 @@
 <h1>VOIR@!!Rennes OM En Direct Streaming Gratuit Tv 17 Mars 2024</h1>
 Rennes – Marseille : sur quelle chaîne et à quelle heure suivre le match de Ligue 1 en direct ?
+
+<strong>🔴EN DIRECT▶ [Rennes - Marseille En Direct Streaming](https://sports2tv.live/frenchleague/)</strong>
+
+<strong>🔴EN DIRECT▶ [Rennes - Marseille En Direct Streaming](https://sports2tv.live/frenchleague/)</strong>
+
 Suite de la vingt-sixième journée de Ligue 1 Uber Eats ce dimanche. Au Roazhon Park, Rennes accueille Marseille pour un match capital dans la course à l’Europe. Rennes – Marseille : sur quelle chaîne et à quelle heure suivre le match de Ligue 1 en direct ?
 Alors que les dix-huit équipes de Ligue 1 approchent du dernier quart de saison, les matchs couperets vont devenir de plus en plus fréquents. Après 23 matchs disputés, Rennes et Marseille sont toujours en course pour une place européenne en fin de saison. Avec 33 points au compteur et un bilan de 8 victoires, 9 matchs nuls et 6 défaites, les coéquipiers de Pierre Emerick Aubameyang sont neuvièmes au classement à seulement 5 points de la cinquième place, directement qualificative pour la phase de groupes de l’Europa League. Les joueurs olympiens viennent d’enchaîner 6 victoires consécutives, une première depuis 1962. Du côté rennais, on lorgne aussi sur l’Europe. En 23 journées, les Bretons ont amassé 35 points. Si la première partie de saison a été difficile, les Rouges et Noirs sont en forme depuis plusieurs matchs avec une longue série d’invincibilité. Les joueurs du Stade Rennais restent sur un match nul sur la pelouse du LOSC. Rennes – Marseille : sur quelle chaîne et à quelle heure suivre le match de Ligue 1 en direct ?
 
